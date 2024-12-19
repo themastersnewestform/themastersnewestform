@@ -1,16 +1,15 @@
-## Hi there 👋
+discord: _s4wyer _
 
-<!--
-**s5wyer/s5wyer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+example: https://rentry.co/s-wyer
 
-Here are some ideas to get you started:
+You can pay me through nitro (discord) or robux (roblox)!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+prices:
+
+discord nitro: 9.99
+
+roblox robux: 800
+
+i can do resources, pfps, banners, extra pages, and custom art for you rentry, no cost!
+
+robux is transferred through a gamepass, on my roblox shop, and nitro is through digital gifting, not through gift cards.
